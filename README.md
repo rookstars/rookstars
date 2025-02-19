@@ -1,12 +1,12 @@
 ✚｡ ᴗ͈)  hello u can call me robin, crowe or ciel, preferably crowe
 
-transmasc / bi‎  ་‎   ིྀ˖‎ ‎ scorpio
+transmasc / bi‎  ་‎   ིྀ˖‎ ‎ 04 / 11
 
 my first language is spanish and i can speak a little english
   
 <img src=https://files.catbox.moe/b6c8oh.gif width=500 height=500/>
 
-𝓓ni : if u hate my favs - if you're "dramatic" - mean people - basic dni criteria - pollosi (it's a joke with a friend, don't pay attention jakajskaj) - etc. 
+𝓓ni : plz don't talk to me if you're -13/+21 - if u hate my favs - if you're "dramatic" - mean people - basic dni criteria - pollosi (it's a joke with a friend, don't pay attention jakajskaj) - etc. 
 
 ❝‎ ‎ Byf : kys jokes - i insult all the time (joking, obviously) -  i'm quite a non sharing and gatekeeper with specific things that i like - i like some things that could be ""problematic"" - i get angry VERY easily - etc.
 
