@@ -21,10 +21,8 @@ u can find out a little more about me by reading my strawpage!
 most of the time on the 2 Spanish servers
 
 ― and i really really really love my bf 💞
-
-
-
-
-
-
+‎ 
+‎ 
+‎ 
+‎
 <img src=https://files.catbox.moe/6eksd9.png width=300 height=300/>
