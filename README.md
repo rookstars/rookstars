@@ -18,7 +18,7 @@ malice mizer - etc.
 ㈩‎ ‎ 𝓜y literally loves : rook hunt - jamil viper - crowe from tkatb - reno from ff7 - tifa lockhart - kadaj from ff7, chihiro fujisaki, zen from mm, clear from dmmd, kaito the vocaloid, gackt, victor nikiforov, nijiro murakami - lee dohyun - etc.
 
 u can find out a little more about me by reading my strawpage!
-most of the time on the 2 Spanish servers
+most of the time im on the 2 spanish servers
 
 ― and i really really really love my bf 💞
 ‎ 
