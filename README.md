@@ -2,7 +2,7 @@
 
 transmasc / bi‎  ་‎   ིྀ˖‎ ‎ scorpio
 
-my first language is Spanish and i can speak a little english
+my first language is spanish and i can speak a little english
   
 <img src=https://files.catbox.moe/b6c8oh.gif width=500 height=500/>
 
