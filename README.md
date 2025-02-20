@@ -8,7 +8,7 @@ my first language is spanish and i can speak a little english
 
 𝓓ni : plz don't talk to me if you're -13/+21 - if u hate my favs - if you're "dramatic" - mean people - basic dni criteria - pollosi (it's a joke with a friend, don't pay attention jakajskaj) - etc. 
 
-❝‎ ‎ Byf : kys jokes - i insult all the time (joking, obviously) -  i'm quite a non sharing and gatekeeper with specific things that i like - i like some things that could be ""problematic"" - i get angry VERY easily - etc.
+❝‎ ‎ Byf : kys jokes - i insult all the time (joking, obviously) -  i'm quite a non sharing with specific things that i like - i like some things that could be ""problematic"" - i get angry VERY easily - etc.
 
 𝓛ikes : i love final fantasy 7, mo dao zu shi, twisted wonderland and visual novels. alien stage - no.6 - yuri on ice! - Dmmd - the kid at the back - death note - alice in borderland - lost in the cloud - 19 days - my beautiful man - 
 malice mizer - etc.
