@@ -15,7 +15,7 @@ malice mizer - etc.
 
 ！ Dislikes : mean people - my favs haters - be ignored - people who "never" do anything wrong - those weird fujoshis/fundanshis - toxic yaoi like idk jinx - etc. 
 
-㈩‎ ‎ 𝓜y literally loves : rook hunt - jamil viper - crowe from tkatb - reno from ff7 - tifa lockhart - kadaj from ff7 - chihiro fujisaki - zen from mm - clear from dmmd - kaito the vocaloid - gackt - hwei from lol - victor nikiforov - nijiro murakami - lee dohyun - etc.
+㈩‎ ‎ 𝓜y literally loves : rook hunt - jamil viper - crowe from tkatb - reno from ff7 - tifa lockhart - kadaj from ff7 - chihiro fujisaki - zen from mm - kai satou from yttd - clear from dmmd - kaito the vocaloid - gackt - hwei from lol - victor nikiforov - nijiro murakami - lee dohyun - etc.
 
 u can find out a little more about me by reading my strawpage!
 most of the time im on the 2 spanish servers
