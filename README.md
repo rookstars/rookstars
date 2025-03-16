@@ -2,7 +2,7 @@
 
 transmasc / bi‎  ་‎   ིྀ˖‎ ‎ 04 / 11
 
-my first language is spanish and i can speak a little english
+my first language is spanish, i can speak a little english and very very little french
   
 <img src=https://files.catbox.moe/b6c8oh.gif width=500 height=500/>
 
