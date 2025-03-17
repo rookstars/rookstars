@@ -6,7 +6,7 @@ my first language is spanish, i can speak a little english and very very little 
   
 <img src=https://files.catbox.moe/b6c8oh.gif width=500 height=500/>
 
-𝓓ni : plz don't talk to me if you're -13/+21 (i have exceptions) - if u hate my friends - if u copy skins - if u hate my favs - if you're "dramatic" - mean people - basic dni criteria - if u always talk abt sex or sexualize everything, pollosi (it's a joke with a friend, don't pay attention jakajskaj) - la gorda de len - etc. 
+𝓓ni : plz don't talk to me if you're -13/+21 (i have exceptions) - if u hate my friends - if u copy skins - if u hate my favs - if you're "dramatic" - mean people - basic dni criteria - if u always talk abt sex or sexualize everything, pollosi (it's a joke with a friend, don't pay attention jakajskaj) - la gorda de len (JOKEEEE!!!!) - etc. 
 
 ❝‎ ‎ Byf : kys jokes - i insult all the time (joking, obviously) -  i'm quite a non sharing with specific things that i like (mostly with my favs) - i like some things that could be ""problematic"" - i get angry VERY easily - etc.
 
