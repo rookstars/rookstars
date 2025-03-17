@@ -10,8 +10,7 @@ my first language is spanish, i can speak a little english and very very little 
 
 ❝‎ ‎ Byf : kys jokes - i insult all the time (joking, obviously) -  i'm quite a non sharing with specific things that i like (mostly with my favs) - i like some things that could be ""problematic"" - i get angry VERY easily - etc.
 
-𝓛ikes : i love final fantasy 7, mo dao zu shi, twisted wonderland and visual novels. alien stage - no.6 - yuri on ice! - Dmmd - the kid at the back - death note - alice in borderland - lost in the cloud - 19 days - my beautiful man - 
-malice mizer - etc.
+𝓛ikes : i love final fantasy 7, mo dao zu shi, twisted wonderland and visual novels. alien stage - no.6 - yuri on ice! - Dmmd - the kid at the back - death note - alice in borderland - lost in the cloud - 19 days - my beautiful man - malice mizer - kaya - etc.
 
 ！ Dislikes : mean people - my favs haters - be ignored - people who "never" do anything wrong - those weird fujoshis/fundanshis - toxic yaoi like idk jinx - etc. 
 
