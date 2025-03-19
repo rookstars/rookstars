@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/45ab0e89-dd0c-4015-a2df-dfe5b359021e)✚｡ ᴗ͈)  hello u can call me robin or crowe, preferably crowe
+(✚｡ ᴗ͈)  hello u can call me robin or crowe, preferably crowe
 
 transmasc / bi‎  ་‎   ིྀ˖‎ ‎ 04 / 11
 
