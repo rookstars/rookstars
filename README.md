@@ -1,4 +1,4 @@
-✚｡ ᴗ͈)  hello u can call me robin or crowe, preferably crowe
+![image](https://github.com/user-attachments/assets/45ab0e89-dd0c-4015-a2df-dfe5b359021e)✚｡ ᴗ͈)  hello u can call me robin or crowe, preferably crowe
 
 transmasc / bi‎  ་‎   ིྀ˖‎ ‎ 04 / 11
 
@@ -8,7 +8,7 @@ my first language is spanish, i can speak a little english and very very little 
 
 𝓓ni : plz don't talk to me if you're -13/+21 (i have exceptions) - if u hate my friends - if u copy skins - if u hate my favs - if you're "dramatic" - mean people - basic dni criteria - if u always talk abt sex or sexualize everything, pollosi (it's a joke with a friend, don't pay attention jakajskaj) - la gorda de len (JOKEEEE!!!!) - etc. 
 
-❝‎ ‎ Byf : kys jokes - i insult all the time (joking, obviously) -  i'm quite a non sharing with specific things that i like (mostly with my favs) - i like some things that could be ""problematic"" - i get angry VERY easily - etc.
+❝‎ ‎ Byf : kys jokes - i insult all the time (joking, obviously) -  i'm quite a non sharing with specific things that i like (mostly with my favs, like, with rook hunt im super non sharing, please, dont say u like him too..) - i like some things that could be ""problematic"" - i get angry VERY easily - etc.
 
 𝓛ikes : i love final fantasy 7, mo dao zu shi, twisted wonderland and visual novels. alien stage - no.6 - yuri on ice! - Dmmd - the kid at the back - death note - alice in borderland - lost in the cloud - 19 days - my beautiful man - malice mizer - kaya - etc.
 
