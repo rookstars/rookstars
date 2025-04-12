@@ -10,11 +10,11 @@ my first language is spanish, i can speak a little english and very very little 
 
 ❝‎ ‎ Byf : kys jokes - i insult all the time (joking, obviously) -  i'm quite a non sharing with specific things that i like (mostly with my favs, like, with rook hunt im super non sharing, please, dont say u like him too..) - i like some things that could be ""problematic"" - i get angry VERY easily - etc.
 
-𝓛ikes : i love final fantasy 7, mo dao zu shi, twisted wonderland and visual novels. alien stage - no.6 - yuri on ice! - Dmmd - the kid at the back - death note - alice in borderland - lost in the cloud - 19 days - my beautiful man - malice mizer - kaya - etc.
+𝓛ikes : i love final fantasy 7, mo dao zu shi, twisted wonderland and visual novels. alien stage - greek mythology - no.6 - yuri on ice! - blood of zeus - epic:the musical - Dmmd - the kid at the back - death note - alice in borderland - lost in the cloud - 19 days - my beautiful man - malice mizer - kaya - etc.
 
 ！ Dislikes : mean people - my favs haters - be ignored - people who "never" do anything wrong - those weird fujoshis/fundanshis - toxic yaoi like idk jinx - etc. 
 
-㈩‎ ‎ 𝓜y literally loves : rook hunt - jamil viper - divus crewel - crowe from tkatb - reno from ff7 - tifa lockhart - kadaj from ff7 - chihiro fujisaki - zen from mm - kai satou from yttd - clear from dmmd - kaito the vocaloid - gackt - hwei from lol - victor nikiforov - nijiro murakami - lee dohyun - etc.
+㈩‎ ‎ 𝓜y literally loves : rook hunt - jamil viper - divus crewel - crowe from tkatb - reno from ff7 - tifa lockhart - kadaj from ff7 - apollo - hermes - chihiro fujisaki - zen from mm - kai satou from yttd - clear from dmmd - kaito the vocaloid - gackt - hwei from lol - victor nikiforov - nijiro murakami - lee dohyun - etc.
 
 u can find out a little more about me by reading my strawpage!
 most of the time im on the 2 spanish servers
