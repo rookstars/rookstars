@@ -1,4 +1,4 @@
-(✚｡ ᴗ͈)  hello u can call me robin or crowe, preferably crowe
+(✚｡ ᴗ͈)  hello u can call me robin or crowe
 
 transmasc / bi‎  ་‎   ིྀ˖‎ ‎ 04 / 11
 
